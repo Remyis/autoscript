@@ -1,1 +1,1 @@
-# autoscript
+©Joesatria22
